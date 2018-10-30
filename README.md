@@ -41,7 +41,8 @@ The Theory of Everything - a story of overcoming and faith
   - The reason we struggle with insecurity is because we compare our behind-the-scenes with everyone else's highlight reel. <br> ![](https://i.pinimg.com/originals/46/45/c3/4645c3caec17c4bdb22a4bad231fd16d.jpg)
 - Mark Cuban
   - Work like there is someone working 24 hours a day to take it all away from you! <br> ![](https://successlive.com/wp-content/uploads/mark-cuban-success-quotes131-758x426.png)
-
+- Desconhecido 
+  - Eu não sei como te explicar que você deveria se importar com as outras pessoas. <br> ![] (https://2.bp.blogspot.com/-CUvhUiT5_c8/W8ZOhUbmr4I/AAAAAAAAARc/ciDxrfDzhdcz4eJj9-kScgBpPt87lMPmACLcBGAs/s1600/eu%2Bn%25C3%25A3o%2Bsei%2Bcomo%2Bte%2Bexplicar.jpg)
 
 ## Songs
 
